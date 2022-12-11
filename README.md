@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Gajendra-Saini
 - 👀 I’m interested in javascript
-- 🌱 I’m currently studying  at 2 year at Vnit Nagpur
+- 🌱 I’m currently studying  at 3 year at Vnit Nagpur
 - 💞️ I’m currently learning DSA
 - 📫 How to reach me mail me on rickysaini2003@gmail.com
 
