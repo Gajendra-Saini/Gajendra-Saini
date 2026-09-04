@@ -9,4 +9,4 @@
 
 📫 Reach me: rickysaini2003@gmail.com
 
-🔗 [LinkedIn](www.linkedin.com/in/gajendra-kumar-saini-a72611218)
+🔗 [LinkedIn](https://www.linkedin.com/in/gajendra-kumar-saini-a72611218/)
